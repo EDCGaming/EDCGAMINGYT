@@ -1,1 +1,1 @@
-# EDCGAMINGYT
+# EDCGAMINGYT.github.io
